@@ -1,1 +1,1 @@
-Query results - http://tomjas3.stud.if.ktu.lt/itoma/
+
